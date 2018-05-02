@@ -1,2 +1,1 @@
-BTS
-I want to see BTS in LA. Crying
+Seattle is fun
